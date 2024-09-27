@@ -1,5 +1,4 @@
 # nieluibiepiastgliwice
 super repozytorium
 polecam to repozytorium bardzo
-REPOZYTORIUM FANÓW Górnika którzy nienawidzą piasta gliwice basta basta basta ... piasta
-hyythty
+J GÓRNIK ZABRZE - FANI GÓRNIKA LUBIĄ BOLCA I PALCA ANALCA 
