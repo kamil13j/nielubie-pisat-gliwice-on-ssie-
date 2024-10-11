@@ -1,2 +1,2 @@
-piast gliwice jest nie dobry
+piast gliwice jest dobry
 
